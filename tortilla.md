@@ -2,7 +2,7 @@ Ingredientes:
 -Huevos 
 -Patatas 
 -CEBOLLA 
-
+-Sal
 Cómo debe quedar:
 
 La tortilla debe ser crugiente ( hecha por fuera) y casi cruda por 
