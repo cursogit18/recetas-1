@@ -1,7 +1,7 @@
 Ingredientes para Fabada o Fabes. Receta tradicional asturiana
 500 g de fabes
 250 g de panceta curada asturiana
-2 chorizos asturianos
+3 chorizos asturianos
 2 morcillas asturianas
 Agua
 200 g de hueso de jamón
